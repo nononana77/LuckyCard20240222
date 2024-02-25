@@ -1,1 +1,1 @@
-#Thanks for TED
+Thanks for TED
