@@ -1,1 +1,1 @@
-Thanks to TED (movingHyun)
+Thanks to TED (movingHyunKim)
